@@ -23,6 +23,7 @@
 - Team Player: Collaboration is at the core of my work ethic, and I love working with diverse teams to achieve common goals.
 
 🚀 **Let's Connect**:
+- Email: adriana.vinicki@gmail.com
 - LinkedIn: www.linkedin.com/in/adrianavinicki99
 - Portfolio: https://stringsandkeys.up.railway.app/, https://wondertoys.up.railway.app/
 
